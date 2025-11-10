@@ -40,4 +40,4 @@ Busco crescer profissionalmente, aplicando meus conhecimentos em ambientes corpo
 > 💬 *“A tecnologia é a ponte entre o que temos hoje e o que podemos construir amanhã.”*  
 
 ---
-⭐️ _Feito com dedicação por **Fabiano Mendonça de Oliveira**_
+
