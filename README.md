@@ -31,8 +31,9 @@ Busco crescer profissionalmente, aplicando meus conhecimentos em ambientes corpo
 ---
 
 ## 🌐 Onde me encontrar
-📧 **E-mail:** [fabiano@email.com](mailto:fabiano@email.com)  
-💼 **LinkedIn:** [linkedin.com/in/fabiano](https://linkedin.com/in/fabiano)  
+📧 **E-mail:** [fabiano.sk8.br@gmail.com](mailto:fabiano.sk8.br@gmail.com)  
+💼 **LinkedIn:** [www.linkedin.com/in/fabiano-oliveira-ti](https://www.linkedin.com/in/fabiano-oliveira-ti)  
+📸 **Instagram:** [@fabimano_](https://www.instagram.com/fabimano_/)  
 🐙 **Portfólio:** [fabianooliveira.github.io](https://fabianooliveira.github.io)  
 
 ---
@@ -41,4 +42,3 @@ Busco crescer profissionalmente, aplicando meus conhecimentos em ambientes corpo
 
 ---
 ⭐️ _Feito com dedicação por **Fabiano Mendonça de Oliveira**_
-
