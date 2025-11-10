@@ -1,4 +1,4 @@
-# 👋 Olá, eu sou o Fabiano Mendonça de Oliveira  
+#  Olá, eu sou o Fabiano Mendonça de Oliveira  
 
 💻 **Assistente de Informática**  
 🎓 Técnico em Administração | Cursando Técnico em Informática  
