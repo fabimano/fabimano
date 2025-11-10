@@ -34,7 +34,6 @@ Busco crescer profissionalmente, aplicando meus conhecimentos em ambientes corpo
 📧 **E-mail:** [fabiano.sk8.br@gmail.com](mailto:fabiano.sk8.br@gmail.com)  
 💼 **LinkedIn:** [www.linkedin.com/in/fabiano-oliveira-ti](https://www.linkedin.com/in/fabiano-oliveira-ti)  
 📸 **Instagram:** [@fabimano_](https://www.instagram.com/fabimano_/)  
-🐙 **Portfólio:** [fabianooliveira.github.io](https://fabianooliveira.github.io)  
 
 ---
 
